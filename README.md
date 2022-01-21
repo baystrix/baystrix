@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @baystrix
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning programming & Engllish Language.
+- 📫 Russian, Chechen Republic, Grozny.
